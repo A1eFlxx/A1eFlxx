@@ -1,4 +1,4 @@
-### 🃏 Mil cairão ao teu lado, e dez mil, à tua direita, mas tu não serás atingido. (Salmo 91:7)
+### 🃏 Mil cairão ao teu lado, e dez mil, à tua direita, mas tu não serás atingido. (Salmo 91:7) 
 
 
 
